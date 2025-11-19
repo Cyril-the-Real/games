@@ -1,4 +1,4 @@
-# Monkey-Making Methods (RuneScape / Old School RuneScape)
+# Money-Making Methods (RuneScape / Old School RuneScape)
 
 ## “Collecting”(:)
 
